@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @melcalcio
 - 👀 I’m interested in industrial history, watches, cars, video production and web development
-- 🌱 I’m currently working at the local governement
+- 🌱 I’m currently working for the local governement
 - 💞️ I’m looking to collaborate with more creative people in Luxembourg
 - 📫 mail@melcalc.io
 
